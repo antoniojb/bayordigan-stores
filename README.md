@@ -1,0 +1,1 @@
+# bayordigan-stores
